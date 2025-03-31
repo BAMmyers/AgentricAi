@@ -1,0 +1,2 @@
+# AgentricAi
+pushinginovation and creation 
